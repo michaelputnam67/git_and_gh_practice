@@ -3,3 +3,4 @@ These are some of my favorite hobbies:
 2. Skiing
 3. Hiking
 4. Gaming
+5. cycling
